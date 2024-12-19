@@ -1,1 +1,1 @@
-# chesman
+# chesman![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=22&duration=2000&pause=1000&color=F7A800&center=true&vCenter=true&width=500&lines=MU+IS+NUMBER+ONE+%F0%9F%94%A5%F0%9F%94%A5%F0%9F%94%A5)
